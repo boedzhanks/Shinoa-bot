@@ -1,2 +1,3 @@
 # Shinoa-bot
-# Shinoa-bot
+
+Subscribe Shinoa Hiiragi
